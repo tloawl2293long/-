@@ -1,2 +1,2 @@
-<a class="button" href="https://openinapp.link/z8zd3" target="_blank">
+<a class="button" href="https://relonw229392.github.io/ii/scndoc1.html" target="_blank">
         <ins>CLICK HERE</ins>
